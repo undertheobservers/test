@@ -1,4 +1,4 @@
 # Karenina is best girl and cannon wife
-The /pgr/ shitpost repo
+The /pgr/ shitposting repo
 
 Current patch: Yata
